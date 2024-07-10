@@ -15,3 +15,10 @@ var myVar = "Hello, worl!";
 var integ = 4;
 var summ = integ + 2;
 ```
+
+- [ ] a
+- [ ] b
+- [ ] c
+- [ ] c
+- [ ] sand
+- [ ] amogus
