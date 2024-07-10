@@ -6,3 +6,4 @@
 ## 3. Because they are Fun.
 
 ###### aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+![sand amogus](https://cdn.discordapp.com/attachments/1148312873345499249/1260267785108586588/image.png?ex=668eb356&is=668d61d6&hm=6ca6cf4d991266cf949243452e18a04f999dae74a8efebb2f049f8e3afa0d548&)
